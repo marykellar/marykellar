@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @marykellar
-- 👀 I’m interested in altruistic design and sustainability
+- 👀 I’m interested in compelling designs and sustainability
 - 🌱 I specicifally love illustrating, brand development, and designing logos
 - 📫 How to reach me... email:ms.marykellar@gmail.com 
 
